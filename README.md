@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @hirsizska
+👋 Hi, I’m @hirsizska
